@@ -1,4 +1,4 @@
-# Kelly Abudu
+# Kelly 
 
 ### Computer Science Student | AI & Software Developer
 
